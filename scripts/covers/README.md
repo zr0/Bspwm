@@ -1,1 +1,1 @@
-# Here is were i save my covers you can set to another place
+# Here is were i save my album covers you can set to another place
